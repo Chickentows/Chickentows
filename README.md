@@ -2,7 +2,7 @@
 -  I am interested in coding video games.
 -  I am currently learning C++.
 -  I am looking to collaborate on Making codes on unreal.
--  How to reach me jadc1262@student.misd.org.
+-  How to reach me (can not access email).
 -  Pronouns: He/him.
 -  I am only available on unreal and I may not allways be available.
 
